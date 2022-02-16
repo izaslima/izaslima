@@ -1,4 +1,4 @@
-### oiee, eu sou a iza, também conhecida por lima 👋
+### oiee, eu sou a iza 🌊
 
 <!--
 **izaslima/izaslima** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
